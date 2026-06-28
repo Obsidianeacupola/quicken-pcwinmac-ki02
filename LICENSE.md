@@ -1,4 +1,4 @@
-# 
+# Principal Quicken herramientas para Mac OS | Nuevo Quicken herramientas para PC Windows. Con redacción y plantillas personalizadas — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
